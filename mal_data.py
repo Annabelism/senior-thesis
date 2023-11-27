@@ -1,0 +1,12 @@
+http://www.spiegel.de/international/
+http://www.spiegel.de/international/
+http://vote.us.org/
+http://vote.us.org/
+http://www.acting-man.com/
+http://www.acting-man.com/
+http://washingtonsources.org
+http://washingtonsources.org
+http://dieharddemocrat.com/
+http://dieharddemocrat.com/
+http://wonkette.com/
+http://wonkette.com/
